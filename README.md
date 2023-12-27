@@ -1,0 +1,2 @@
+# Bookidz
+Bookidz Privacy Policy 
